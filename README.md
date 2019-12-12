@@ -1,2 +1,3 @@
 # karmyog-app
-Arise, awake, and stop not till the goal is reached!
+
+Thousands of years of Vedic wisdom brought to you through the teaching of Jagatguru Shri Kripaluji Maharaj. 
